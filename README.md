@@ -10,6 +10,4 @@
 Elon55578/Elon55578 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-NAME: FARUQ OKIKIADE 🧑‍🦲
-BANK 🏦 PALM PAY 
-ACCOUNT NO:7035137406
+bc1q9m5wqm89kl07yl8ved9tdrzmhypyhq9t05khk9
